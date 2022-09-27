@@ -1,0 +1,6 @@
+ -   Oi!Meu nome é @gabihhih!
+- 🌱 Meu e-mail de contato é gabrieli.casagrande@escola.pr.gov.br 
+- :+1: Procuro aprofundar meu aprendizado :D
+-  👍 Estou interresado em aprender á programar novas linguagens :)
+-   🕶️ Sou estudante! :D
+-   🤝Tenho grandes expectativas para o futuro!
