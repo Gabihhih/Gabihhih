@@ -4,3 +4,4 @@
 -  👍 Estou interresado em aprender á programar novas linguagens :)
 -   🕶️ Sou estudante! :D
 -   🤝Tenho grandes expectativas para o futuro!
+-  :+1: Eu estou aprendendo a programar recentemente a linguagem de javascript e scratch :D
